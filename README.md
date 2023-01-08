@@ -1,1 +1,1 @@
-# s.pankratov1906.github.io
+# spankratov1906.github.io
